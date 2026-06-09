@@ -1,4 +1,4 @@
-# 
+# Intelligent sandwich attack bot flux de travail pour Mac OS | Avancé sandwich attack bot flux de travail pour PC Windows. Avec indexation de la blockchain et connectivité Web3 — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
